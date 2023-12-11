@@ -1,2 +1,3 @@
 
-### تابع : [berothon](https://t.me/Sero_Bots) ###
+### تابع : [Runthon](https://t.me/xLxLxLrr3) ###
+ 
